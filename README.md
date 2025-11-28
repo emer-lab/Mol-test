@@ -27,3 +27,4 @@ Christmas is coming
 and the goose is getting fat
 please put a penny in 
 the old man's hat
+if you haven't got a penny
